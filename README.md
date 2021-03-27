@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Azznita
-- 👀 I’m interested in Andriud and Web Programing
+- 👀 I’m interested in Android and Web Programing
 - 🌱 I’m currently learning Android
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me anitaazura08@gmail.com
